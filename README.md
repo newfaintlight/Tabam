@@ -1,1 +1,0 @@
-# READ Tabam.pdf
